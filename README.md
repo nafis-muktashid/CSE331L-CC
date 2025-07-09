@@ -2,4 +2,4 @@
 
 
 
-Some assembly NSU has taught
+Some assembly Youtube, ChatGPT, NSU has taught
